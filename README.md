@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...atividades
 - 📫 How to reach me ...(intagram) @zl.vini.zl
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...gosto de sotar pipa e namorar
+- ⚡ Fun fact: ...gosto de soltar pipa e namorar
 
 <!---
 Viniciusgbianchi/Viniciusgbianchi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
